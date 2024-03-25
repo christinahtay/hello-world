@@ -1,2 +1,2 @@
 Hello
-your mom is gay
+your mom is epic
